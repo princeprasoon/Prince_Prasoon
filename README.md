@@ -1,4 +1,4 @@
-![Screenshot_2024-01-04-10-42-16-62~2](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/3d7fb42b-bb18-436c-95a4-1f1413112922)
+![image](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/6664ea15-586b-4638-88e1-ffa98812a1c7)
 # Prince Prasoon's Resume 
 ## Contact Info:
 - 📧 princeprasoon8406@gmail.com
