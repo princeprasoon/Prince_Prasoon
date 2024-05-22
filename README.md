@@ -1,4 +1,5 @@
-![image](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/6664ea15-586b-4638-88e1-ffa98812a1c7)
+![image](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/56fbbb07-7460-4922-abf5-b72057c6e9bc)
+
 # Prince Prasoon's Resume 
 ## Contact Info:
 - 📧 princeprasoon8406@gmail.com
@@ -8,22 +9,16 @@
 ## Academic Details:
 
 - Bachelor's degree in Business Administration (B.B.A) : 2022-2025
-
-  Lalit Narayan Mishra Institute of Economic Development and Social Change, Patna
-
-  Currently pursuing
+Lalit Narayan Mishra Institute of Economic Development and Social Change, Patna
+Currently pursuing
   
 - Higher Secondary (12th)                               : 2021
-
-  Mahatma Gandhi Shikshan Sansthan Darbhanga
-  
-  74%
+Mahatma Gandhi Shikshan Sansthan Darbhanga
+74%
 
 - Secondary School (10th)                               : 2019
-
-  Mahatma Gandhi Shikshan Sansthan Darbhanga
-
-  88.4%
+Mahatma Gandhi Shikshan Sansthan Darbhanga
+88.4%
 
 ## Professional Summary:
 - Business student specializing in Financial Management with skills in financial analysis, accounting, and advanced Excel. Experienced in investment strategies, risk management, and financial software. Strong in data analysis, problem-solving, and multitasking. Excellent communicator and team player.
