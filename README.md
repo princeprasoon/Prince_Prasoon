@@ -1,5 +1,4 @@
-# Prince Prasoon's Resume 
-![Prince Pic](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/d43f3553-2bc4-495a-8677-0d256e32be73)
+![Prince Pic](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/d43f3553-2bc4-495a-8677-0d256e32be73) # Prince Prasoon's Resume 
 ## Contact Info:
 - 📧 princeprasoon8406@gmail.com
 - 📱 7360041307
