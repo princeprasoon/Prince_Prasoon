@@ -1,12 +1,9 @@
 # Prince Prasoon's Resume 
-
-
-
+![Prince Pic](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/d43f3553-2bc4-495a-8677-0d256e32be73)
 ## Contact Info:
 - 📧 princeprasoon8406@gmail.com
 - 📱 7360041307
-- 📍 S/O- Rajesh Kumar, Ward 1, near Mahavir Mandir, Vill-Barheta, Laheriasarai, Darbhanga, Bihar - 846001![Prince Pic](https://github.com/princeprasoon/Prince_Prasoon/assets/170539351/d43f3553-2bc4-495a-8677-0d256e32be73)
-
+- 📍 S/O- Rajesh Kumar, Ward 1, near Mahavir Mandir, Vill-Barheta, Laheriasarai, Darbhanga, Bihar - 846001
 
 ## Academic Details:
 
