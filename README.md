@@ -6,16 +6,20 @@
 - 📍 S/O- Rajesh Kumar, Ward 1, near Mahavir Mandir, Vill-Barheta, Laheriasarai, Darbhanga, Bihar - 846001
 
 ## Academic Details:
-- Bachelor's degree in Business Administration (B.B.A) : 2022-2025
+
+# Bachelor's degree in Business Administration (B.B.A) : 2022-2025
   Lalit Narayan Mishra Institute of Economic Development and Social Change, Patna
+
   Currently pursuing
   
-- Higher Secondary (12th)                               : 2021
+# Higher Secondary (12th)                               : 2021
   Mahatma Gandhi Shikshan Sansthan Darbhanga
+  
   74%
 
-- Secondary School (10th)                               : 2019
+# Secondary School (10th)                               : 2019
   Mahatma Gandhi Shikshan Sansthan Darbhanga
+
   88.4%
 
 ## Professional Summary:
