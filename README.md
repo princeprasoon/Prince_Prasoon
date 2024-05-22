@@ -1,4 +1,4 @@
-# Prince Prasoon
+# Prince Prasoon's Resume
 
 ## Contact Info:
 - 📧 princeprasoon8406@gmail.com
