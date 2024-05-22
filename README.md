@@ -8,16 +8,19 @@
 ## Academic Details:
 
 - Bachelor's degree in Business Administration (B.B.A) : 2022-2025
+
   Lalit Narayan Mishra Institute of Economic Development and Social Change, Patna
 
   Currently pursuing
   
 - Higher Secondary (12th)                               : 2021
+
   Mahatma Gandhi Shikshan Sansthan Darbhanga
   
   74%
 
 - Secondary School (10th)                               : 2019
+
   Mahatma Gandhi Shikshan Sansthan Darbhanga
 
   88.4%
