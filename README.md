@@ -19,7 +19,7 @@ Mahatma Gandhi Shikshan Sansthan Darbhanga
 Mahatma Gandhi Shikshan Sansthan Darbhanga
 88.4%
 ## Experience 
-- Internshdip at Midland Microfin Ltd (3rd June to 8th August 2024)
+- Internship at Midland Microfin Ltd (3rd June to 8th August 2024)
 Credit Analyst 
 
 ## Professional Summary:
