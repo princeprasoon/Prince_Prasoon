@@ -18,6 +18,9 @@ Mahatma Gandhi Shikshan Sansthan Darbhanga
 - Secondary School (10th)                               : 2019
 Mahatma Gandhi Shikshan Sansthan Darbhanga
 88.4%
+## Experience 
+- Internship at Midland Microfin Ltd
+Credit Analyst 
 
 ## Professional Summary:
 - Business student specializing in Financial Management with skills in financial analysis, accounting, and advanced Excel. Experienced in investment strategies, risk management, and financial software. Strong in data analysis, problem-solving, and multitasking. Excellent communicator and team player.
